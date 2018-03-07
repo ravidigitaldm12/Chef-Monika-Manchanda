@@ -1,0 +1,2 @@
+# Chef-Monika-Manchanda
+Monika Manchanda is Well Known Master Chef of Indian Cuisine, She is an ex-IT person turned into a food blogger, consultant, home baker, an amateur food photographer. She had first Cooking experience at the age of 6 or 7, When is Cooking with Her mom. Many years later when she was a teenager, she baked a cake for her mother’s birthday that was the beginning of Chef Monika Manchanda. She became the master Chef of Indian Food Recipe. 
